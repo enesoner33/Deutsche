@@ -1,6 +1,7 @@
 # Deutsche Grammatik 
 
 Privacy Policy of Enes Öner
+
 Enes Öner operates the Deutsche Grammatik website, which provides the SERVICE.
 
 This page is used to inform website visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service, the Deutsche Grammatik website.
