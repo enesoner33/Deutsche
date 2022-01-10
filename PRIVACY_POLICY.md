@@ -1,4 +1,4 @@
-# Deutsche 
+# Deutsche Grammatik 
 
 Privacy Policy of Enes Öner
 Enes Öner operates the Deutsche Grammatik website, which provides the SERVICE.
