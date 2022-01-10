@@ -1,5 +1,5 @@
 # Deutsche
-Gizlilik Politikası
+Gizlilik Politikası https://www.privacypolicytemplate.net/live.php?token=skFl2gVWPUe7d8TlNfvuI7KI8qzHOjJI
 
 Privacy Policy of Enes Öner
 Enes Öner operates the Deutsche Grammatik website, which provides the SERVICE.
